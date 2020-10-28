@@ -1,0 +1,2 @@
+# oke
+latihan latihan
